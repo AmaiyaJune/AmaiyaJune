@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AmaiyaJune
 - 👀 I’m interested in FOOD.
-- 🌱 I’m currently learning NOTHING!
+- 🌱 I’m currently learning ?
 - 💞️ I’m looking to collaborate on Nothing.
 - 📫 How to reach me : Don't
 
